@@ -1,0 +1,1 @@
+# submitted_livewalk_patent
